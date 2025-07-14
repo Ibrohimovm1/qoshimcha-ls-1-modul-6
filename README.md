@@ -1,0 +1,1 @@
+# qoshimcha-ls-1-modul-6
